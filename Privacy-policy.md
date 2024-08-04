@@ -24,7 +24,7 @@ Legal Compliance: We may use your information to comply with legal obligations, 
 
 5. Your Rights
 
-You may have certain rights regarding your personal information, such as the right to access, correct, or delete your data. To exercise these rights, please contact us at [Your Contact Information].   
+You may have certain rights regarding your personal information, such as the right to access, correct, or delete your data. To exercise these rights, please contact us at discord "harumiiii._.".   
 
  6. Changes to This Privacy Policy
 
@@ -32,7 +32,7 @@ You may have certain rights regarding your personal information, such as the rig
 
  7. Contact Us
 
- If you have any questions about this Privacy Policy, please contact us at [Your Contact Information].   
+ If you have any questions about this Privacy Policy, please contact us at discord "harumiiii._.".   
 
 Additional Considerations
 
